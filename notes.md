@@ -1,3 +1,7 @@
+# Edward the Second notes
+
+## Random annotation and stuff
+
 * T632: I'm actually a bit confused about the relationship between the
         Queen, Lancaster, and the Young Mortimer... I thought they were
         united against Gaveston or something?
